@@ -1,2 +1,2 @@
 # abtal-albeeah
-شي عالمي
+شي
